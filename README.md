@@ -154,5 +154,10 @@ https://www.facebook.com/watch/?v=419156182096657
 https://www.facebook.com/watch/?v=463594337839392
 https://www.facebook.com/watch/?v=395559131321958
 https://www.facebook.com/watch/?v=941989336174952
+http://smartscripts.groovemongoose.com/Frost-Diamond-c7880.html
+http://cowbigw.seeking4love.com/Frost-Diamond-824f5.html
+https://www.kaskus.co.id/post/5f4a6029b41d306f6a06f27b
+https://www.kaskus.co.id/post/5f4a60a2facb955fc9077b6b
+https://id.pinterest.com/pin/793970609300631370/
 
 #forstdiamond #frost #bocil #bapakgile #kananda #widyantara #minecraft #roblox #lego #prank #bocah #lifehack #diamond #hero #skill #tiktok #lambo #freefire #pubg #elitepass #skin #hotweels #phobia #mainan #ular #sekolah #panik #kejutan #sma #mengerikan #terharu #tertangkap #kamera
