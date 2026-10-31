@@ -13,5 +13,7 @@ https://fb.me/dower30
 
 https://www.facebook.com/almerputraangkasa/
 
+https://s.id/almerputraangkasa
+
 Almer Putra Angkasa
 #alpusa #arsyhotspot #almerhotspot
